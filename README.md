@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
