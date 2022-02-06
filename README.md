@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
