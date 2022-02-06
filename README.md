@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
