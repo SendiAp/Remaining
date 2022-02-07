@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
