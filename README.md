@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
