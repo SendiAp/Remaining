@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## I used to work for a soft drink can crusher. It was soda pressing.
