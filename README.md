@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
