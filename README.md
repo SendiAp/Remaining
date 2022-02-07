@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
