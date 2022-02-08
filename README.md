@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## What do you call a beehive without the b's? An eehive.
