@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
