@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Why did the tomato blush? Because it saw the salad dressing.
