@@ -1,1 +1,2 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Where do cats write notes?
+## Scratch Paper!
