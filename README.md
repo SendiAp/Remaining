@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
