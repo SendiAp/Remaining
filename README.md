@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## How can you tell a vampire has a cold? They start coffin.
