@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## I wouldn't buy anything with velcro. It's a total rip-off.
