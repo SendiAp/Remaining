@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
