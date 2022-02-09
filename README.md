@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
