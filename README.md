@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## How do you get two whales in a car? Start in England and drive West.
