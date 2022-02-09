@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## There’s a new type of broom out, it’s sweeping the nation.
