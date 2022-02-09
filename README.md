@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
