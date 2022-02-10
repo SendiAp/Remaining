@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
