@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## How do the trees get on the internet? They log on.
