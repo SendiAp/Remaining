@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Where do young cows eat lunch? In the calf-ateria.
