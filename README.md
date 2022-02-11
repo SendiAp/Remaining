@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
