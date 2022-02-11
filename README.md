@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
