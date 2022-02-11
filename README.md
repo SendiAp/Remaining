@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
