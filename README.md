@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## How do you find Will Smith in the snow?  Look for fresh prints.
