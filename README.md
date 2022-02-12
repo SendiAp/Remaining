@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
