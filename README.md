@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why can't eggs have love? They will break up too soon.
