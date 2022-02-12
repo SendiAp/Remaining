@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
