@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## What did the digital clock say to the grandfather clock? Look, no hands!
