@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
