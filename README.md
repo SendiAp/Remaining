@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## A termite walks into a bar and asks “Is the bar tender here?”
