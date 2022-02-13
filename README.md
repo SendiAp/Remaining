@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
