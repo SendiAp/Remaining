@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
