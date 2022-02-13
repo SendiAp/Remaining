@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## People are making apocalypse jokes like there’s no tomorrow.
