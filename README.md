@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
