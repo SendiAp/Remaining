@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
