@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## What do you do when your bunny gets wet? You get your hare dryer.
