@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
