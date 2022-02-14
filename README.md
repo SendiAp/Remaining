@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## "I'm sorry." "Hi sorry, I'm dad"
