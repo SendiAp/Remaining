@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What creature is smarter than a talking parrot? A spelling bee.
