@@ -1,1 +1,3 @@
-## How many apples grow on a tree? All of them!
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
