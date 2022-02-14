@@ -1,1 +1,2 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
