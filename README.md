@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## What do you call a dictionary on drugs? High definition.
