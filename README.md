@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Breaking news! Energizer Bunny arrested – charged with battery.
