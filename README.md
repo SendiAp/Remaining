@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
