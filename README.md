@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Which side of the chicken has more feathers? The outside.
