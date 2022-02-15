@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
