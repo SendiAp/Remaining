@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
