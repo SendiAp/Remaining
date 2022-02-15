@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why can't a bicycle stand on its own? It's two-tired.
