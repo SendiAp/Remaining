@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## I just got fired from a florist, apparently I took too many leaves.
