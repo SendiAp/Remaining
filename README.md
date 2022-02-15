@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
