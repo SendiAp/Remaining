@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
