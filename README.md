@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Why did the kid cross the playground? To get to the other slide.
