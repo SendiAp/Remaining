@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## I'm glad I know sign language, it's pretty handy.
