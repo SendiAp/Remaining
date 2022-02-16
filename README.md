@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Sore throats are a pain in the neck!
