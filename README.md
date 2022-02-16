@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
