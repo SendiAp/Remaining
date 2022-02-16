@@ -1,1 +1,2 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Where do cats write notes?
+## Scratch Paper!
