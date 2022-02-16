@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
