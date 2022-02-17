@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## An apple a day keeps the bullies away. If you throw it hard enough.
