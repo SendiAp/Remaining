@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## How come the stadium got hot after the game? Because all of the fans left.
