@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What did one plate say to the other plate? Dinner is on me!
