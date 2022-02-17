@@ -1,1 +1,1 @@
-## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
