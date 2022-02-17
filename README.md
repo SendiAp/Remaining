@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why don't sharks eat clowns?  Because they taste funny.
