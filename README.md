@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
