@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## The rotation of earth really makes my day.
