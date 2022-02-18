@@ -1,1 +1,3 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
