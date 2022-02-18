@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
