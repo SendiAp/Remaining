@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
