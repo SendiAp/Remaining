@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Leather is great for sneaking around because it's made of hide.
