@@ -1,1 +1,3 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
