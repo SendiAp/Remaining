@@ -1,1 +1,1 @@
-## What is the leading cause of dry skin? Towels
+## Why do cows wear bells? Because their horns don't work.
