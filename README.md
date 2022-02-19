@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
