@@ -1,1 +1,2 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
