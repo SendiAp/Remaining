@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
