@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
