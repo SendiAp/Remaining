@@ -1,1 +1,2 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
