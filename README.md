@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## A termite walks into a bar and asks “Is the bar tender here?”
