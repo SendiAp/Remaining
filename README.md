@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## How do you find Will Smith in the snow?  Look for fresh prints.
