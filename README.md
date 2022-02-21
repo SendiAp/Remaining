@@ -1,1 +1,2 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
