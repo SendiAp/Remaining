@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
