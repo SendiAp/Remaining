@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Camping is intense.
