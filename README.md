@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
