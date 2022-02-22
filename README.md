@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## It doesn't matter how much you push the envelope. It will still be stationary.
