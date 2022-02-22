@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
