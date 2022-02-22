@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## A cannibal is someone who is fed up with people.
