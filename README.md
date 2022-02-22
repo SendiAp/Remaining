@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
