@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
