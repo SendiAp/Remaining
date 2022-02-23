@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## How many South Americans does it take to change a lightbulb? A Brazilian
