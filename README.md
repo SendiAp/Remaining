@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
