@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
