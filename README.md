@@ -1,1 +1,2 @@
-## The best time on a clock is 6:30--hands down.
+## What is red and smells like blue paint?
+## Red paint!
