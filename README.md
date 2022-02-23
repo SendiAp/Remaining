@@ -1,1 +1,2 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
