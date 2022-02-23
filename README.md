@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## How many bones are in the human hand? A handful of them.
