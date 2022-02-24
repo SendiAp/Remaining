@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
