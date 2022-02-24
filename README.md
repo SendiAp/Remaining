@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
