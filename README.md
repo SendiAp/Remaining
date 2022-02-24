@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
