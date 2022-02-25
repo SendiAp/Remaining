@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## A termite walks into a bar and asks “Is the bar tender here?”
