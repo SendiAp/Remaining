@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
