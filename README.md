@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## I wouldn't buy anything with velcro. It's a total rip-off.
