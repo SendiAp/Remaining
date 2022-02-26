@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
