@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
