@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why is no one friends with Dracula? Because he's a pain in the neck.
