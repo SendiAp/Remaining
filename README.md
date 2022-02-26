@@ -1,1 +1,3 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
