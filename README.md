@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
