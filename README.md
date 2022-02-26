@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## What do you call a boomerang that won't come back? A stick.
