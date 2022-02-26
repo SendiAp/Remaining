@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
