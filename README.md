@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
