@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
