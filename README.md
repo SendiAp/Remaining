@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
