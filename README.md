@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## You can't trust a ladder. It will always let you down
