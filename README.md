@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
