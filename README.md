@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## What does a clock do when it's hungry? It goes back four seconds!
