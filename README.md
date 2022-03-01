@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
