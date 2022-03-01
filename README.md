@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
