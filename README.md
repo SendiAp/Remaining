@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
