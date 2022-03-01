@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
