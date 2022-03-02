@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## What is a vampire's favorite fruit? A blood orange.
