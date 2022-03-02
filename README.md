@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
