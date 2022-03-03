@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
