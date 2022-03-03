@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## How do you get two whales in a car? Start in England and drive West.
