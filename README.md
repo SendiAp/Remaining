@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
