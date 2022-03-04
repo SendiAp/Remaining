@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## What does a pirate pay for his corn? A buccaneer!
