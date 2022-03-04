@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
