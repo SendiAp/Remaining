@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
