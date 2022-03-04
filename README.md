@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Don't tell secrets in corn fields. Too many ears around.
