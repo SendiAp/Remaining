@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
