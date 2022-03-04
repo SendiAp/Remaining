@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
