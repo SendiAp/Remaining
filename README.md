@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why didn’t the skeleton cross the road? Because he had no guts.
