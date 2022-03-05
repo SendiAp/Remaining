@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
