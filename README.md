@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
