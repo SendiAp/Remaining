@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
