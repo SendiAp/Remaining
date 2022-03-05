@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
