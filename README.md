@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## There’s a new type of broom out, it’s sweeping the nation.
