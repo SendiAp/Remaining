@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Thanks for explaining the word "many" to me. It means a lot.
