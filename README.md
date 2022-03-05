@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
