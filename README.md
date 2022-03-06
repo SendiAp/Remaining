@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
