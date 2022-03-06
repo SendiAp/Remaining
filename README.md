@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Coffee has a tough time at my house, every morning it gets mugged.
