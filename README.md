@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
