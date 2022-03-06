@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Two silk worms had a race. They ended up in a tie.
