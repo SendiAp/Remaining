@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## How does a French skeleton say hello? Bone-jour.
