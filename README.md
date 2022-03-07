@@ -1,1 +1,2 @@
-## When is a door not a door? When it's ajar.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
