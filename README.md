@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
