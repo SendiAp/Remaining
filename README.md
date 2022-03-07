@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## What did the ocean say to the beach? Thanks for all the sediment.
