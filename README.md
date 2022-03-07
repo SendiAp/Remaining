@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
