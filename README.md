@@ -1,1 +1,3 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
