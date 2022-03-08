@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## What did the beaver say to the tree? It's been nice gnawing you.
