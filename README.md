@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What's brown and sticky? A stick.
