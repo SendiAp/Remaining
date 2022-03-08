@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
