@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
