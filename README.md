@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
