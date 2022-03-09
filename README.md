@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## If at first you don't succeed, sky diving is not for you!
