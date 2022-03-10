@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## “My Dog has no nose.” “How does he smell?” “Awful”
