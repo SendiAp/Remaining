@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Dad, can you put my shoes on? I don't think they'll fit me.
