@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
