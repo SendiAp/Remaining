@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Why was ten scared of seven? Because seven ate nine.
