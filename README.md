@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Breaking news! Energizer Bunny arrested – charged with battery.
