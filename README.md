@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
