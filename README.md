@@ -1,1 +1,1 @@
-## What do you call a pile of cats?  A Meowtain.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
