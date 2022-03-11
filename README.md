@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
