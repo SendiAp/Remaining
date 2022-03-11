@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## How many South Americans does it take to change a lightbulb? A Brazilian
