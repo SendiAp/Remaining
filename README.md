@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
