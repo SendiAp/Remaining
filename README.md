@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
