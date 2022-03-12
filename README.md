@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why is no one friends with Dracula? Because he's a pain in the neck.
