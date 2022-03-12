@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
