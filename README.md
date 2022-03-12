@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
