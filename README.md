@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
