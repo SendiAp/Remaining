@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## I considered building the patio by myself. But I didn't have the stones.
