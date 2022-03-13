@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## I couldn't get a reservation at the library. They were completely booked.
