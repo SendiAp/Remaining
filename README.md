@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
