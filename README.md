@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
