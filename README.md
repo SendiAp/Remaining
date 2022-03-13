@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
