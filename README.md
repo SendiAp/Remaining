@@ -1,1 +1,2 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What's the difference between a seal and a sea lion?
+## An ion! 
