@@ -1,1 +1,1 @@
-## What do you call a guy lying on your doorstep? Matt.
+## Where do you learn to make banana splits? At sundae school.
