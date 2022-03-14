@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
