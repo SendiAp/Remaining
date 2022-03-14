@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
