@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## A farmer had 297 cows, when he rounded them up, he found he had 300
