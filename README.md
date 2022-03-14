@@ -1,1 +1,3 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
