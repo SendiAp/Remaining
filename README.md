@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
