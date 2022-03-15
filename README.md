@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I’ll tell you something about German sausages, they’re the wurst
