@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
