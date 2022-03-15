@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
