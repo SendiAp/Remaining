@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Shout out to my grandma, that's the only way she can hear.
