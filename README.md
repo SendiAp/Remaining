@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
