@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why are pirates called pirates? Because they arrr!
