@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## It doesn't matter how much you push the envelope. It will still be stationary.
