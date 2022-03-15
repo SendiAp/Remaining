@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What did the ocean say to the beach? Thanks for all the sediment.
