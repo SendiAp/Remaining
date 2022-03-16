@@ -1,1 +1,2 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
