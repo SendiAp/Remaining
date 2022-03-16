@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Why was the robot angry? Because someone kept pressing his buttons!
