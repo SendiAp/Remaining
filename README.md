@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## What did the beaver say to the tree? It's been nice gnawing you.
