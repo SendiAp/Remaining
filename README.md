@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Why are graveyards so noisy? Because of all the coffin.
