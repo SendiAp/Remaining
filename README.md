@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## How does a scientist freshen their breath? With experi-mints!
