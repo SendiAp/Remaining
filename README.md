@@ -1,1 +1,2 @@
-## What’s E.T. short for? He’s only got little legs.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
