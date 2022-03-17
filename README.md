@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
