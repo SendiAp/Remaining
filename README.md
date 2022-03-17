@@ -1,1 +1,2 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
