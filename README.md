@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
