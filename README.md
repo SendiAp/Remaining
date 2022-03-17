@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What’s E.T. short for? He’s only got little legs.
