@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why is the ocean always blue? Because the shore never waves back.
