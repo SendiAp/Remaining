@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
