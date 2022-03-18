@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
