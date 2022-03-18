@@ -1,1 +1,2 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
