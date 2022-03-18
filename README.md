@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## What did the ocean say to the beach? Thanks for all the sediment.
