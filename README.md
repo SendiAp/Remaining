@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
