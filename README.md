@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Why is the ocean always blue? Because the shore never waves back.
