@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
