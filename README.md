@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
