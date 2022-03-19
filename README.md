@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
