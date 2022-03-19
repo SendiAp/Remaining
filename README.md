@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
