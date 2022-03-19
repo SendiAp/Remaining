@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Where do you learn to make banana splits? At sundae school.
