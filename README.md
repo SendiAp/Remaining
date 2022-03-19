@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What do you call a troublesome Canadian high schooler? A poutine.
