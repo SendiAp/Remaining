@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
