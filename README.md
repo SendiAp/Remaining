@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Our wedding was so beautiful, even the cake was in tiers.
