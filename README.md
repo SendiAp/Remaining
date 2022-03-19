@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## How do you steal a coat? You jacket.
