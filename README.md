@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
