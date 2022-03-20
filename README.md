@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## When do doctors get angry? When they run out of patients.
