@@ -1,1 +1,3 @@
-## When do doctors get angry? When they run out of patients.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
