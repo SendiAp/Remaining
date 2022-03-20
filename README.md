@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## How do you get two whales in a car? Start in England and drive West.
