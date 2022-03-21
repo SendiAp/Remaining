@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Why do birds fly south for the winter? Because it's too far to walk.
