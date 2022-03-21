@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## "I'll call you later." Don't call me later, call me Dad.
