@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Shout out to my grandma, that's the only way she can hear.
