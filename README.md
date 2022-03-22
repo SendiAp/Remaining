@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What did one nut say as he chased another nut?  I'm a cashew!
