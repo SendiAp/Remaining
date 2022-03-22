@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Don't tell secrets in corn fields. Too many ears around.
