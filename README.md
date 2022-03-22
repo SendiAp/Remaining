@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## What did the pirate say on his 80th birthday? Aye Matey!
