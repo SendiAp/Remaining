@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
