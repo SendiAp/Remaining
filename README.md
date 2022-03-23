@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## It doesn't matter how much you push the envelope. It will still be stationary.
