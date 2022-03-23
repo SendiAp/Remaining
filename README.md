@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
