@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
