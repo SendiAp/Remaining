@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
