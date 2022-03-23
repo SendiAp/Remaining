@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
