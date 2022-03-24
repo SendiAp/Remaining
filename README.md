@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## What was a more important invention than the first telephone? The second one.
