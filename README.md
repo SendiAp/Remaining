@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
