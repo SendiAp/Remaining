@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## A cannibal is someone who is fed up with people.
