@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
