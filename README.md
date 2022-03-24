@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Don't tell secrets in corn fields. Too many ears around.
