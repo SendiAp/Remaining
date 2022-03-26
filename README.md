@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
