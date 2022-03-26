@@ -1,1 +1,3 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
