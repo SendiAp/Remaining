@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## I asked a frenchman if he played video games. He said "Wii"
