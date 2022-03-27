@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
