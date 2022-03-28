@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
