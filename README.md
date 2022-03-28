@@ -1,1 +1,2 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
