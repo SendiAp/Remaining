@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
