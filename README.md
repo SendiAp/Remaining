@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## What kind of pants do ghosts wear? Boo jeans.
