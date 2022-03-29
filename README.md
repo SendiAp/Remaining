@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Why do cows wear bells? Because their horns don't work.
