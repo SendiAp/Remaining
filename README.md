@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
