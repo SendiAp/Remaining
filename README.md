@@ -1,1 +1,3 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
