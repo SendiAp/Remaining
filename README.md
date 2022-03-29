@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
