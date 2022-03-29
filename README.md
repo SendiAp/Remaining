@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
