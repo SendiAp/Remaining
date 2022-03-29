@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
