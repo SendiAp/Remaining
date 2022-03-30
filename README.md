@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
