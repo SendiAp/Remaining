@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
