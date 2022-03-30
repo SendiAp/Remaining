@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## What's the best thing about elevator jokes? They work on so many levels.
