@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
