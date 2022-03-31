@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
