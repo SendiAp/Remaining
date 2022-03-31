@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I’ll tell you something about German sausages, they’re the wurst
