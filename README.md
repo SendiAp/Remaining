@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I have kleptomania, but when it gets bad, I take something for it.
