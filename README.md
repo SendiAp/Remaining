@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## How come a man driving a train got struck by lightning? He was a good conductor.
