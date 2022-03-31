@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## I wouldn't buy anything with velcro. It's a total rip-off.
