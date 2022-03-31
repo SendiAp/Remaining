@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
