@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What did the piece of bread say to the knife? Butter me up.
