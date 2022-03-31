@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What do you call a dad that has fallen through the ice? A Popsicle.
