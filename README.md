@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
