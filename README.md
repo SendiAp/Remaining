@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## What did the left eye say to the right eye? Between us, something smells!
