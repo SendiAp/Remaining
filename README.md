@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Why did the half blind man fall in the well? Because he couldn't see that well!
