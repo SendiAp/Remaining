@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
