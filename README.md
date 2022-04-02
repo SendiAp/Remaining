@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
