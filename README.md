@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
