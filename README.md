@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why did the feline fail the lie detector test? Because he be lion.
