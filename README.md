@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## I considered building the patio by myself. But I didn't have the stones.
