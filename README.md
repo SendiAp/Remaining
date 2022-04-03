@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
