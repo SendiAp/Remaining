@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
