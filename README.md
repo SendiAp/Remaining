@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## What do prisoners use to call each other? Cell phones.
