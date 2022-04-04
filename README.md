@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## I was in an 80's band called the prevention. We were better than the cure.
