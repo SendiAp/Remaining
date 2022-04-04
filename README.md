@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## I considered building the patio by myself. But I didn't have the stones.
