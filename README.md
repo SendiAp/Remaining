@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
