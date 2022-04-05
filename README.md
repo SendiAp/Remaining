@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
