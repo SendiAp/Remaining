@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
