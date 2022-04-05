@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
