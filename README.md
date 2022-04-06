@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
