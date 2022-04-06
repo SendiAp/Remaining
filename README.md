@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
