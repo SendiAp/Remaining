@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
