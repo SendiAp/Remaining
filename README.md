@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## An apple a day keeps the bullies away. If you throw it hard enough.
