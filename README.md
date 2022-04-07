@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why don't sharks eat clowns?  Because they taste funny.
