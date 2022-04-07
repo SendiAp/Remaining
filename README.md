@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Why do fish live in salt water? Because pepper makes them sneeze!
