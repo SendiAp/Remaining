@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## Where do young cows eat lunch? In the calf-ateria.
