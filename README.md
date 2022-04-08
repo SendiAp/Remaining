@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Thanks for explaining the word "many" to me. It means a lot.
