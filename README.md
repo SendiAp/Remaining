@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## How come the stadium got hot after the game? Because all of the fans left.
