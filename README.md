@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
