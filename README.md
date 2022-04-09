@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
