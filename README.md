@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
