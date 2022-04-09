@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
