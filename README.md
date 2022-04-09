@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
