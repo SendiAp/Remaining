@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## A termite walks into a bar and asks “Is the bar tender here?”
