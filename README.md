@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
