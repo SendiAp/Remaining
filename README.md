@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
