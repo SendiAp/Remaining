@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
