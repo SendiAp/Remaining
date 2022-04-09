@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## What did the grape do when he got stepped on? He let out a little wine.
