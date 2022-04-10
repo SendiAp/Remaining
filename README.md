@@ -1,3 +1,2 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## What do you do when you see a space man?
+## Park your car, man.
