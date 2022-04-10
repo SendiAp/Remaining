@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What did one plate say to the other plate? Dinner is on me!
