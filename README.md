@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
