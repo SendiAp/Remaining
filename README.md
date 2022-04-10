@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## What do you call a fat psychic? A four-chin teller.
