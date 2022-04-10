@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
