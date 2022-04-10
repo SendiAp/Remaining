@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## How do you fix a broken pizza? With tomato paste.
