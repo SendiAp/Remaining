@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What do you call a cow with no legs? Ground beef.
