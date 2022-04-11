@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
