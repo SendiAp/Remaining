@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## What do you call a droid that takes the long way around? R2 detour.
