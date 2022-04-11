@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
