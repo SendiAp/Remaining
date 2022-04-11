@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## I decided to sell my Hoover… well it was just collecting dust.
