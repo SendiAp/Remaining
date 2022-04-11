@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
