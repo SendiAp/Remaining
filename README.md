@@ -1,1 +1,2 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What's the difference between a seal and a sea lion?
+## An ion! 
