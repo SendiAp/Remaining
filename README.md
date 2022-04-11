@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
