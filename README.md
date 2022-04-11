@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
