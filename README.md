@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## There's not really any training for garbagemen. They just pick things up as they go.
