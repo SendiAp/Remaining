@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why do crabs never give to charity? Because they’re shellfish.
