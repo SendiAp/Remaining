@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
