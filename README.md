@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## The invention of the wheel was what got things rolling
