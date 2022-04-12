@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
