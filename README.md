@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
